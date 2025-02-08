@@ -1,0 +1,1 @@
+# gelik-sifat-velik
